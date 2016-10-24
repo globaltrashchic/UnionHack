@@ -23,3 +23,11 @@ Finally, I altered Canada’s flag. I changed the way the two stripes are facing
 Japan - The design has a red circle in the center signifying the sun. The difference compared to the flag of Japan is that the Rising Sun Flag has extra sun rays (16 for the ensign) exemplifying the name of Japan as "The Land of the Rising Sun". 
 
 ![2000px-naval_ensign_of_japan svg](https://cloud.githubusercontent.com/assets/22593770/19638403/b2add482-99cb-11e6-951c-1ea0e0772b7b.png)
+
+![japan_flag_poster-r04d644d835654db092476f90650edc93_kvl_8byvr_324](https://cloud.githubusercontent.com/assets/22593770/19638429/d377d42e-99cb-11e6-9d78-11f5845e9361.jpg)
+
+![japan-flag](https://cloud.githubusercontent.com/assets/22593770/19638442/e272a198-99cb-11e6-94f2-0778e93394db.gif)
+
+![japan-samurai-warrior-japan-flag-t-shirts-men-s-slim-fit-t-shirt](https://cloud.githubusercontent.com/assets/22593770/19638451/eccfa2c6-99cb-11e6-856e-326b971c7e98.jpg)
+
+![tmp748945877439086593](https://cloud.githubusercontent.com/assets/22593770/19638459/f63c50ca-99cb-11e6-9c2e-73644fb983b0.png)
