@@ -21,3 +21,5 @@ Finally, I altered Canada’s flag. I changed the way the two stripes are facing
 ### GLOBALTRASHCHIC FLAGS
 
 Japan - The design has a red circle in the center signifying the sun. The difference compared to the flag of Japan is that the Rising Sun Flag has extra sun rays (16 for the ensign) exemplifying the name of Japan as "The Land of the Rising Sun". 
+
+![2000px-naval_ensign_of_japan svg](https://cloud.githubusercontent.com/assets/22593770/19638403/b2add482-99cb-11e6-951c-1ea0e0772b7b.png)
