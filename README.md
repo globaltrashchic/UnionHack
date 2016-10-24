@@ -17,3 +17,7 @@ My 3rd flag I changed is for Hong Kong. For this one I only changed the colour a
 Finally, I altered Canada’s flag. I changed the way the two stripes are facing. As one of Canada’s main values is equality and the symbol for equality is an equals sign, I designed their flag to reflect this.
 
 ![4](https://cloud.githubusercontent.com/assets/22593770/19627541/0a21fb7a-9941-11e6-8cbb-38780d5f8980.jpg)
+
+### GLOBALTRASHCHIC FLAGS
+
+Japan - The design has a red circle in the center signifying the sun. The difference compared to the flag of Japan is that the Rising Sun Flag has extra sun rays (16 for the ensign) exemplifying the name of Japan as "The Land of the Rising Sun". 
